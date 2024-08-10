@@ -1,16 +1,15 @@
-## Hi there 👋
+**ABOUT ME;**
 
-<!--
-**B3NJl/B3NJl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my names benji but nicknames are welcome!!
 
-Here are some ideas to get you started:
+transmasc,, he/him,, gay and ace
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**fandoms;**
+
+DC, marvel, percy jackson and the olympians, rdr and rdr2, criminal minds, vocaloid
+
+**boundaries;**
+
+cod fandom dniuf
+masktok & booktok people dni
+proshippers dni
